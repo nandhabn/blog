@@ -2,4 +2,4 @@
 
 https://nhooyr.io
 
-My personal blog.
+Anmol's personal blog.
